@@ -1,1 +1,1 @@
-# YakushimaruYuki.github.io
+# YakushimaruYuki
