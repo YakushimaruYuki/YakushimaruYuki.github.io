@@ -1,1 +1,1 @@
-# YakushimaruYuki desu£¡£¡
+# YakushimaruYuki
